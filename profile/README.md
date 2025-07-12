@@ -10,4 +10,8 @@
 
 > Software that reflects your motion. Built to reinforce the builder.
 
+
 © 2025 PE-Solutions Partners LLC
+All rights reserved. Preme Agent™, Preme Agent™, Preme Botnet™ and GrindOS™ are trademarks of PE-Solutions Partners LLC.
+
+
