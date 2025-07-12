@@ -8,7 +8,7 @@
 - **Preme Botnet™** – Growth automation for social media ecosystems
 - **Preme.OS™** – A unified suite for modern grind discipline
 
-> Software that reflects your motion. Built to reinforce the builder.
+> _Software that reflects your motion. Built to reinforce the builder._
 
 
 © 2025 PE-Solutions Partners LLC
